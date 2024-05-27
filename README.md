@@ -19,6 +19,12 @@ HW12 - 66 / 66
 
 5 / 5
 
+##### Exams
+
+Exam 1 - 58/100
+Exam 2 - 50/100
+Exam 3 - 43/100
+
 ##### Final Grade
 
 B-
